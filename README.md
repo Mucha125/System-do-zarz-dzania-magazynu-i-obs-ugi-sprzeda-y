@@ -1,0 +1,1 @@
+# System-do-zarz-dzania-magazynu-i-obs-ugi-sprzeda-y
